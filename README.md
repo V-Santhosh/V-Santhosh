@@ -14,7 +14,7 @@
 
 ### ✍️ Random Dev Quote
 
-
+Consistency multyiplies. 1% everyday is 3800 % in an year
 ---
 [![](https://visitcount.itsvg.in/api?id=V-Santhosh&icon=0&color=1)](https://visitcount.itsvg.in)
 
